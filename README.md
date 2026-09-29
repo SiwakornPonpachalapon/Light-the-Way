@@ -191,7 +191,7 @@ Light the Way ทำให้ผมได้เรียนรู้กระบ
 
 ## 📺 Gameplay Video
 
-[▶ รับชม Gameplay บน YouTube](ใส่ลิงก์_YOUTUBE_ตรงนี้)
+[▶ รับชม Gameplay บน YouTube](https://www.youtube.com/watch?v=Z0_kZA-K1BA)
 
 ---
 
